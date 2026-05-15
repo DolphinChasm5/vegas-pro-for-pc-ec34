@@ -1,4 +1,4 @@
-# 
+# updated Vegas Pro for PC | Vegas Pro for Windows Plugin | collaboration-tools + LUT-support is the best Vegas Pro for PC | Vegas Pro for Windows plugin, featuring
 
 
 
